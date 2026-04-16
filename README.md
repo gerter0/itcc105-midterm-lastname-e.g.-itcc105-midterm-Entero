@@ -1,1 +1,0 @@
-# itcc105-midterm-lastname-e.g.-itcc105-midterm-Entero
